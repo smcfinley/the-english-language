@@ -1,5 +1,5 @@
-## Verb "to be" 
-* The meaning is "быть, являться"
+п»ї## Verb "to be" 
+* The meaning is "Р±С‹С‚СЊ, СЏРІР»СЏС‚СЊСЃСЏ"
 
-'He is a husband. (Он является мужем)'
+'He is a husband. (РћРЅ СЏРІР»СЏРµС‚СЃСЏ РјСѓР¶РµРј)'
 * Forms of the verb "to be"
