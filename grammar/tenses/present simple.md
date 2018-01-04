@@ -10,7 +10,7 @@
 * General truth 
 
 `October follows September`
-*Timetable future events
+* Timetable future events
 
 `The train leaves at 5 p.m.`
  
